@@ -1,4 +1,4 @@
-Hello there! I'm @Skynovic. 👋
+**Hello there! I'm @Skynovic.** 👋
 
 I'm a Game Designer & aspiring 3D Artist on both the Roblox & Minecraft platform! 🔨
 
